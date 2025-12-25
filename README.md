@@ -1,0 +1,68 @@
+# MEOVV – BODY
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Tell 'em bring it on
+눈 마주치면be gone
+머릿칼shiny long
+내 정신은laser strong
+갑옷은 탄탄
+원하면 다bring it on
+NOW MEOVV BODY YOU
+I BODY BODY WHO,
+BODY BODY, YEAH
+I BODY BODY WHO,
+BODY BODY, YEAH
+I BODY BODY U
+BODY, YEAH
+I BODY BODY U
+BODY, YEAH
+I BODY BODY
+Supernatural, 사뿐하게catwalk,
+let the ground break
+CPR처럼hit 'em in they chest
+just like the soundwave
+Add it how you want,
+4+4,뭘 물어봐, yeah, I ate
+Tag, it girls, MEOVV, babe
+Tell 'em bring it on
+눈 마주치면be gone
+머릿칼shiny long
+내 정신은laser strong
+갑옷은 탄탄
+원하면 다bring it on
+NOW MEOVV BODY YOU
+I BODY BODY WHO,
+BODY BODY, YEAH
+I BODY BODY WHO,
+BODY BODY, YEAH
+I BODY BODY U
+BODY, YEAH
+I BODY BODY U
+BODY, YEAH
+I BODY BODY
+Fly chicks chillin' on my side
+Eenie miney moe,
+always get what I like
+손 머리 위로up, 다 내 거니까
+It's a stick up
+눈감고 open your eyes,
+yuh, uh uh uh
+파란색big picture, uh uh uh
+그 속엔all of my sisters,
+uh uh uh
+Servin' it up like some dinner,
+thinkin' you big
+You don't know that we bigger
+I BODY BODY WHO,
+BODY BODY, YEAH
+I BODY BODY WHO,
+BODY BODY, YEAH
+I BODY BODY U
+BODY, YEAH
+I BODY BODY U
+All of you
+MEOVV
+All of you
+```
